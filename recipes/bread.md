@@ -44,17 +44,20 @@ The important thing is that it should be fairly air tight.
 I usually do this step at 6pm so I can bake it at noon.
 5. The next step according to the recipe is to flour a work surface and fold it. 
 
-   DO NOT skip this step. I jumped directly to shaping the bread and then popping it in the oven. It's actually really important to fold and let it rise once more or your bread will come out very dense.
+   DO NOT skip this step. I made this mistake and jumped directly to shaping the bread and then popping it in the oven and it came out very dense. It's actually really important to fold as well as wait.
   
-   Instead of folding on a floured work surface, I prefer to use use my hands without any additional flour to fold the bread onto itself in the air. I basically stretch it out one way and then fold and stretch out the other way and fold it into a ball. 
-   Then I plop it onto a floured baking sheet. When I folded it while it was on the floured baking sheet, I incorporated too much flour in one area which you could tell when it was fully baked.
+   Instead of folding on a floured work surface, I prefer to use use my hands without any additional flour to fold the bread onto itself in the air. I basically stretch it out one way and then fold and stretch out the other way and fold it again, and then shape into a ball. 
+   Then I plop the ball onto a floured baking sheet. When I folded it while it was on the floured baking sheet, I incorporated too much flour in one area which you could tell when it was fully baked.
    The bread is not that sticky, so you don't need flour on your hands. Since I have a pretty good baking sheet, you also don't need that much flour on that either. 
    I've heard that you can use parchment paper to line the baking sheet instead, but I've never actually tried this myself. Be careful though! Wax paper is NOT the same as parchment paper and will burn.
 
-6. The recipe says to cover with plastic wrap, but I prefer to just invert my mixing bowl, being careful not to touch the sides of the bread.
+6. The recipe says to cover with plastic wrap, but I prefer to just invert my mixing bowl upside down to cover the bread, being careful not to touch the sides of the bread.
 
 7. Let the bread rest on the counter for 2 hours. I usually set a timer at 1.5 hours and then preheat the oven to 450F so that the oven is preheated at the 2 hour mark. 
-One time I totally forgot about the bread and waited more than 3 hours. The bread come out way too thin and flat since I didn't reshape it.
+
+   The original recipe says 2-3 hours, so I experimented with 2, 2.5, and 3 hours and I find that 2 hours seems to work the best. The full 3 hours tends to lead to flatter loaves.
+ 
+   One time I totally forgot about the bread and waited more than 3 hours. The bread come out way too thin and flat since I didn't reshape it.
 
 8. Once the oven is at 450F, bake for 40 minutes. Follow the instructions in the original recipe if you are using a dutch oven instead. Do not open the oven to look at the bread (this lowers the temperature).
 
